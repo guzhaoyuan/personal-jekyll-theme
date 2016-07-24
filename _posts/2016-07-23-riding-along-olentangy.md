@@ -1,0 +1,13 @@
+---
+layout: post
+section-type: post
+title: Riding Along Olentangy River
+category: Category
+tags: [ 'travel', 'mood' ]
+---
+Today is the most tiring day a have ever had in America.<br>
+In the morning, We start from our home beside the Olentangy river and biking along side the olentangy river trail heading to the downtown. We had a lunch in a famous Germany restaurant. The restaurant offers buffet in a authentic germany way. The food is just like what I had in German. Like Salad Potatos, sausage, and fried Chicken. We had plenty for only $15 and $1.5 tip.<br>
+The afternoon, Zhang and I went to a COSI Musium, whose entry fee is free. Lots of children were there playing with the scientific devices which illustrate basic scientific knowledges. Just like Beijing Science&Technology Musium. We quickly go through all the three floor and went back through High Street.<br>
+In fact, It's quite busy in the downtown area. The whole Columbus city is build up based on the High Street and Olentangy River. There happens to be a BBQ Festival and Color Run there. So many People sitting on the lawn and have BBQ as meal. Though the sun is shiny and hot, it is quite interesting. Except for these pleasant activities, Columbus Downtown is nothing more than a big city. Just lots of tall buidings and developed transportation systems. In fact, there is no very famous scenic spots or tourism interests. Maybe I will visit zoo in the north area, but in the downtown, I'm feeling that there's nothing more I can take a visit.<br>
+After We back to home, I took a shower and had a snap cause this is really tiring(Riding to and back from Downtown). What's even more exausting is that we went to HuaXin Chinese shop for rice. I was shocked that we should buy two package of rice and went to Aldi(A german food store) for further shopping. We really took a long time riding between shops and it was so shiny and hot, I was totally exausted. Finally we got ourselves a bag of potatos, two tank of milk, two bags of rice, some vegetables and cookies. But there are only three of us and we only have three bags. The riding back process is so painful. I took 2 tank of milk with me and I really really had no strenth. I don't even remenber how I managed to rode home and I just can not remenber how many cups of ice water I have had after back to home.<br>
+A interesting matter I encounter is in the HuaXin Shop. A crew told me to take care cause He thought My bike was stolen from a lady and she swear that she would find out the one who stole her bike. What a non-sense. I just thank his advice. I don't know what the problem with him. My bike was rented to from my senior in my lab. How could it be stolen from a lady. 233 Interesting.
