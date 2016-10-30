@@ -2,8 +2,8 @@
 layout: post
 section-type: post
 title: 夜谈
-category:感想
-tags: [ '事记', '感想' ]
+category: 感想
+tags: [ '感想' ]
 ---
 好久没有更新，开了学便一直忙些无来由的事情，荒废了时间。
 但是，偶尔与晓健结伴回宿舍的时光总是充满意义。
